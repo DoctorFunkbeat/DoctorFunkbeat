@@ -42,11 +42,11 @@
 
 
 
-𝑴𝒚 𝑺𝒕𝒂𝒓𝒔 <3 
+𝑴𝒚 𝒇𝒂𝒎𝒊𝒍𝒚!! <3
 ![IMG_2425](https://github.com/user-attachments/assets/c5332802-2dff-4ced-876c-16d92c8f0b4d)
 
-<img width="562" height="531" alt="IMG_4313" src="https://github.com/user-attachments/assets/d3892def-4064-4b3c-8497-0080078c2584" />
 
+𝑴𝒆 𝒂𝒏𝒅 [𝒉𝒆𝒓!!](https://github.com/liminalheaven) 𝒊𝒍𝒚𝒔𝒎 𝒈𝒓𝒓
 
 <img width="757" height="611" alt="IMG_4379" src="https://github.com/user-attachments/assets/b1b53494-3caa-4119-9ebe-60d14cc3df70" />
 
