@@ -3,15 +3,15 @@
 
 <img width="574" height="306" alt="IMG_4483" src="https://github.com/user-attachments/assets/bb9f803e-2a80-4761-b79e-8add165281e7" />
 
-[𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://troopsstainedsanity.straw.page/)
+[𝑆𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒](https://troopsstainedsanity.straw.page/)
 ★
-[𝑬𝑵 𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔](https://en.pronouns.page/@DoctorFunkbeat_)
+[𝐸𝑁 𝑃𝑟𝑜𝑛𝑜𝑢𝑛𝑠](https://en.pronouns.page/@DoctorFunkbeat_)
 ★
-[𝑷𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕](https://br.pinterest.com/TroopsShootingAtStars/)
+[𝑃𝑖𝑛𝑡𝑒𝑟𝑒𝑠𝑡](https://br.pinterest.com/TroopsShootingAtStars/)
 ★
-[𝑰𝒃𝒊𝒔 𝑷𝒂𝒊𝒏𝒕 𝑿](https://ibispaint.com/artist3/1989259252181890824/?type=illust&sort=new)
+[𝐼𝑏𝑖𝑠 𝑃𝑎𝑖𝑛𝑡](https://ibispaint.com/artist3/1989259252181890824/?type=illust&sort=new)
 ★
-[𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://meikahime.atabook.org)
+[𝐴𝑡𝑎𝑏𝑜𝑜𝑘](https://meikahime.atabook.org)
 
 
 <img width="240" height="40" alt="IMG_4484" src="https://github.com/user-attachments/assets/ea37fd32-5d58-4aa5-a664-cf6eed8b405e" /> <img width="78" height="18" alt="IMG_4486" src="https://github.com/user-attachments/assets/0294e7f3-12fd-42c3-88da-ca413a996658" />
@@ -22,4 +22,4 @@
 
 
 <img width="240" height="40" alt="IMG_4484" src="https://github.com/user-attachments/assets/ea37fd32-5d58-4aa5-a664-cf6eed8b405e" /> <img width="20" height="20" alt="IMG_4487" src="https://github.com/user-attachments/assets/edbd7f95-d264-4f75-bbf7-f70454459158" />
-[𝒎𝒚 𝒔𝒕𝒂𝒓<3](https://github.com/liminalheaven)
+[𝑀𝑦 𝑆𝑡𝑎𝑟♡ྀི ](https://github.com/liminalheaven)
