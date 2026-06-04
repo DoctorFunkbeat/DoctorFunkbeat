@@ -12,7 +12,8 @@
 [𝐼𝑏𝑖𝑠 𝑃𝑎𝑖𝑛𝑡](https://ibispaint.com/artist3/1989259252181890824/?type=illust&sort=new)
 💥
 [𝐴𝑡𝑎𝑏𝑜𝑜𝑘](https://meikahime.atabook.org)
-
+💥
+[𝑀𝑒 𝑎𝑛𝑑 𝑚𝑦 𝑠𝑡𝑎𝑟ㅤ♡ྀི](https://dearestlittlestar.straw.page)
 <img width="217" height="17" alt="IMG_4863" src="https://github.com/user-attachments/assets/07818395-a148-40f6-b5a4-aaa3e5d4a7cc" /> <img width="150" height="20" alt="IMG_4873" src="https://github.com/user-attachments/assets/e257810d-cb1f-4278-9bea-cb01ad4479e5" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=293f4c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
