@@ -1,6 +1,7 @@
 ![GIF image](https://github.com/user-attachments/assets/07d15c3c-b390-43a5-bdbd-9b9dfd7e4990)
 
-<img width="1063" height="593" alt="IMG_3834" src="https://github.com/user-attachments/assets/d4aa3ec9-1a37-4cd2-9953-22ce61929c43" />
+<img width="1063" height="593" alt="IMG_3834" src="https://github.com/user-attachments/assets/f0ae9a27-67b3-49ce-92c7-d0afe5810add" />
+
 
 
 
@@ -16,9 +17,11 @@
 💊
 [𝑀𝑒 𝑎𝑛𝑑 𝑚𝑦 𝑠𝑡𝑎𝑟 <𝟑 .ᐟ](https://dearestlittlestar.straw.page)
 
-<img width="437" height="34" alt="IMG_5060" src="https://github.com/user-attachments/assets/b698a879-9af9-4d03-b451-c1ffd3f1e24b" />
+<img width="437" height="34" alt="IMG_5060" src="https://github.com/user-attachments/assets/bdd5bd67-3b2b-471a-aca1-8a62b3678705" />
 
-<img width="150" height="20" alt="IMG_5061" src="https://github.com/user-attachments/assets/7a671053-9bea-4e66-9174-5d8888d4c52d" />
+
+<img width="150" height="20" alt="IMG_5061" src="https://github.com/user-attachments/assets/0c6a4696-8373-4d6c-84c2-08c310b19e32" />
+
 
 
 
@@ -26,10 +29,12 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=473347&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-<img width="437" height="34" alt="IMG_5060" src="https://github.com/user-attachments/assets/50eb52b1-e248-443e-bbee-1b616eacef0e" />
+<img width="437" height="34" alt="IMG_5060" src="https://github.com/user-attachments/assets/23efc1c1-868d-49c2-a5d3-30b2183eedbb" />
 
 
-<img width="99" height="56" alt="IMG_5063" src="https://github.com/user-attachments/assets/68aea457-4827-4c2d-838e-60db4ca0d4b8" />
+
+<img width="99" height="56" alt="IMG_5063" src="https://github.com/user-attachments/assets/85d5dca9-f885-4da0-bbed-aa926f37c3c0" />
+
 
 
 [𝑀𝑦 𝑑𝑒𝑎𝑟 𝑆𝑡𝑎𝑟 ♡ྀི ](https://github.com/rottenmaiden)
