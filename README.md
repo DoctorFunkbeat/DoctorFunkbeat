@@ -26,5 +26,5 @@
 <img width="240" height="40" alt="IMG_4484" src="https://github.com/user-attachments/assets/715e969d-2f89-4223-bb7a-3beb758e18e4" />
 <img width="20" height="20" alt="IMG_4487" src="https://github.com/user-attachments/assets/29b0fefb-95f3-42ba-9496-78336446354b" />
 
-[𝑀𝑦 𝑑𝑒𝑎𝑟 𝑆𝑡𝑎𝑟 ♡ྀི ](https://github.com/liminalheaven)
+[𝑀𝑦 𝑑𝑒𝑎𝑟 𝑆𝑡𝑎𝑟 ♡ྀི ](https://github.com/rottenmaiden)
  
