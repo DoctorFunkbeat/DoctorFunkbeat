@@ -15,6 +15,8 @@
 [𝐴𝑡𝑎𝑏𝑜𝑜𝑘](https://meikahime.atabook.org)
 💊
 [𝑀𝑒 𝑎𝑛𝑑 𝑚𝑦 𝑠𝑡𝑎𝑟 <𝟑 .ᐟ](https://dearestlittlestar.straw.page)
+💊
+[𝑀𝑎𝑖𝑛 𝑠𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒](https://doctorfunkbeatdaitensai.straw.page/)
 
 <img width="437" height="34" alt="IMG_5060" src="https://github.com/user-attachments/assets/bdd5bd67-3b2b-471a-aca1-8a62b3678705" />
 
