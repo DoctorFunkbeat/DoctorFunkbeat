@@ -4,7 +4,7 @@
 
 
 
-[𝑆𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒](https://troopsstainedsanity.straw.page/)
+[𝑆𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒](https://doctorfunkbeatdaitensai.straw.page/)
 💊
 [𝐸𝑁 𝑃𝑟𝑜𝑛𝑜𝑢𝑛𝑠](https://en.pronouns.page/@DoctorFunkbeat_)
 💊
@@ -13,8 +13,7 @@
 [𝐼𝑏𝑖𝑠 𝑃𝑎𝑖𝑛𝑡](https://ibispaint.com/artist3/1989259252181890824/?type=illust&sort=new)
 💊
 [𝐴𝑡𝑎𝑏𝑜𝑜𝑘](https://meikahime.atabook.org)
-💊
-[𝑀𝑎𝑖𝑛 𝑠𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒](https://doctorfunkbeatdaitensai.straw.page/)
+
 
 <img width="437" height="34" alt="IMG_5060" src="https://github.com/user-attachments/assets/bdd5bd67-3b2b-471a-aca1-8a62b3678705" />
 
@@ -34,4 +33,5 @@
 
 <img width="99" height="56" alt="IMG_5063" src="https://github.com/user-attachments/assets/85d5dca9-f885-4da0-bbed-aa926f37c3c0" />
 
- 
+
+ [𝑃𝑜𝑛𝑦𝑡𝑜𝑤𝑛'𝑠 𝐷𝑜𝑐𝑡𝑜𝑟 𝐹𝑢𝑛𝑘𝑏𝑒𝑎𝑡!](https://github.com/pt-hall-of-media)
