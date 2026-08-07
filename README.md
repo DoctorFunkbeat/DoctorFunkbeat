@@ -2,7 +2,7 @@
 
 <img width="1920" height="1088" alt="IMG_9188" src="https://github.com/user-attachments/assets/13dd4e86-7301-4324-8313-8a4eeb5a4992" />
 
-${{\color{#35857D}\normalsize{\textsf{„𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦𝐞 ? 𝐲𝐞𝐬 𝐦𝐲 𝐝𝐨𝐜𝐭𝐨𝐫 !“}}}}$
+${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦𝐞 ? 𝐲𝐞𝐬 𝐦𝐲 𝐝𝐨𝐜𝐭𝐨𝐫 !„}}}}$
 
 
 [𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞!](https://doctorfunkbeatdaitensai.straw.page/)
