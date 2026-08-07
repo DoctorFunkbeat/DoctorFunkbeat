@@ -14,6 +14,7 @@
 [𝐌𝐞 𝐚𝐧𝐝 𝐦𝐲 𝐥𝐨𝐯𝐞!](https://littlelovelystarr.straw.page)
 ✧
 [𝐒𝐩𝐨𝐭𝐢𝐟𝐲!](https://open.spotify.com/user/31r4eu7hkv4ingk57x7aujwbcmfi?si=rcm3HTUBRz67Cz4mikXEUw&utm_source=copy-link)
+✧
 [𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬 𝐂𝐂!](https://pronouns.cc/@DoctorFunkbeat)
 
 
