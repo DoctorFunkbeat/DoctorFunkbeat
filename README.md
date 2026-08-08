@@ -24,7 +24,8 @@ ${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦
 [𝑃𝑜𝑛𝑦𝑡𝑜𝑤𝑛'𝑠 𝐷𝑜𝑐𝑡𝑜𝑟 𝐹𝑢𝑛𝑘𝑏𝑒𝑎𝑡.](https://github.com/pt-hall-of-media) —
 [𝑃𝑜𝑛𝑦𝑡𝑜𝑤𝑛'𝑠 𝑁𝑖𝑔ℎ𝑡𝑐𝑜𝑟𝑑.](https://github.com/pt-hall-of-media)
 
-<img width="60" height="60" alt="IMG_5063" src="https://github.com/user-attachments/assets/c46524b7-d734-479f-b522-a6d2126f11b3" />
+<img width="60" height="60" alt="Untitled274_20260808085156" src="https://github.com/user-attachments/assets/f514ff9f-41e3-473a-959e-03baf4719027" />
+
 <img width="150" height="20" alt="IMG_5061" src="https://github.com/user-attachments/assets/535c6aeb-6c55-4a9e-aece-85d498f18e31" />
 <img width="437" height="34" alt="IMG_5060" src="https://github.com/user-attachments/assets/c31bc51d-8540-4801-8508-12f45c5c6d3e" />
 
