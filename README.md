@@ -26,8 +26,6 @@ ${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦
 
 <img width="60" height="60" alt="Untitled274_20260808085156" src="https://github.com/user-attachments/assets/f514ff9f-41e3-473a-959e-03baf4719027" />
 
-<img width="150" height="20" alt="IMG_5061" src="https://github.com/user-attachments/assets/535c6aeb-6c55-4a9e-aece-85d498f18e31" />
-<img width="437" height="34" alt="IMG_5060" src="https://github.com/user-attachments/assets/c31bc51d-8540-4801-8508-12f45c5c6d3e" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=35857D&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
