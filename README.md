@@ -25,6 +25,7 @@ ${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦
 [𝑃𝑜𝑛𝑦𝑡𝑜𝑤𝑛'𝑠 𝑁𝑖𝑔ℎ𝑡𝑐𝑜𝑟𝑑.](https://github.com/pt-hall-of-media)
 
 <img width="60" height="60" alt="Untitled274_20260808085156" src="https://github.com/user-attachments/assets/f514ff9f-41e3-473a-959e-03baf4719027" />
+<img width="70" height="70" alt="IMG_8532" src="https://github.com/user-attachments/assets/df0261c2-1f59-47f5-abe4-45c65e5bf93d" /> 20.07 <3
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=35857D&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
