@@ -5,19 +5,18 @@
 ${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦𝐞 ? 𝐲𝐞𝐬 𝐦𝐲 𝐝𝐨𝐜𝐭𝐨𝐫 !„}}}}$
 
 
-<a href="https://doctorfunkbeatdaitensai.straw.page/"><img width="90" height="90" alt="Untitled256_20260828102636" src="https://github.com/user-attachments/assets/7504bf26-02d1-45ff-8abd-b3cc01ae29a0" />
+<a href="https://doctorfunkbeatdaitensai.straw.page/"><img width="70" height="70" alt="Untitled256_20260828102636" src="https://github.com/user-attachments/assets/7504bf26-02d1-45ff-8abd-b3cc01ae29a0" />
 ✧
-<a href="https://meikahime.atabook.org/"><img width="90" height="90" alt="Untitled256_20260828102602" src="https://github.com/user-attachments/assets/7fa664ce-265b-4fae-82e6-de929b9fda9c" />
+<a href="https://meikahime.atabook.org/"><img width="70" height="70" alt="Untitled256_20260828102602" src="https://github.com/user-attachments/assets/7fa664ce-265b-4fae-82e6-de929b9fda9c" />
+✧
+<a href="https://en.pronouns.page/@DoctorFunkbeat_/"><img width="70" height="70" alt="Untitled256_20260828102645" src="https://github.com/user-attachments/assets/20620d86-6c8a-4b96-b360-b56c74874b86" />
+✧
+<a href="https://ibispaint.com/artist3/1989259252181890824/?type=illust&sort=new/"><img width="70" height="70" alt="Untitled256_20260828102719" src="https://github.com/user-attachments/assets/712edd8a-d985-477f-9c21-5faf2f390e23" />
+✧
+<a href="https://littlelovelystarr.straw.page/"><img width="70" height="70" alt="Untitled256_20260828102843" src="https://github.com/user-attachments/assets/8e994897-6cf2-4147-b3e9-dc191aa6a4af" />
+✧
+<a href="https://open.spotify.com/user/31r4eu7hkv4ingk57x7aujwbcmfi?si=rcm3HTUBRz67Cz4mikXEUw&utm_source=copy-link/"><img width="70" height="70" alt="Untitled256_20260828102843" src="https://github.com/user-attachments/assets/8d8dd5a1-95b5-4270-ad4b-e91c40537762" />
 
-
-✧
-[𝐄𝐧 𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬!](https://en.pronouns.page/@DoctorFunkbeat_)
-✧
-[𝐈𝐛𝐢𝐬 𝐏𝐚𝐢𝐧𝐭!](https://ibispaint.com/artist3/1989259252181890824/?type=illust&sort=new)
-✧
-[𝐌𝐞 𝐚𝐧𝐝 𝐦𝐲 𝐥𝐨𝐯𝐞!](https://littlelovelystarr.straw.page)
-✧
-[𝐒𝐩𝐨𝐭𝐢𝐟𝐲!](https://open.spotify.com/user/31r4eu7hkv4ingk57x7aujwbcmfi?si=rcm3HTUBRz67Cz4mikXEUw&utm_source=copy-link)
 ✧
 [𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬 𝐂𝐂!](https://pronouns.cc/@DoctorFunkbeat)
 
