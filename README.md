@@ -15,10 +15,9 @@ ${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦
 ✧
 <a href="https://littlelovelystarr.straw.page/"><img width="70" height="70" alt="Untitled256_20260828102843" src="https://github.com/user-attachments/assets/8e994897-6cf2-4147-b3e9-dc191aa6a4af" />
 ✧
-<a href="https://open.spotify.com/user/31r4eu7hkv4ingk57x7aujwbcmfi?si=rcm3HTUBRz67Cz4mikXEUw&utm_source=copy-link/"><img width="70" height="70" alt="Untitled256_20260828102843" src="https://github.com/user-attachments/assets/8d8dd5a1-95b5-4270-ad4b-e91c40537762" />
-
+<a href="https://open.spotify.com/user/31r4eu7hkv4ingk57x7aujwbcmfi?si=rcm3HTUBRz67Cz4mikXEUw&utm_source=copy-link/"><img width="70" height="70" alt="Untitled256_20260828102753" src="https://github.com/user-attachments/assets/35e98dd3-1f0f-45fc-8687-83b914e49dd6" />
 ✧
-[𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬 𝐂𝐂!](https://pronouns.cc/@DoctorFunkbeat)
+<a href="https://pronouns.cc/@DoctorFunkbeat/"><img width="70" height="70" alt="Untitled256_20260828110733" src="https://github.com/user-attachments/assets/a631415d-f281-4312-8446-81062dbc1f13" />
 
 
 
