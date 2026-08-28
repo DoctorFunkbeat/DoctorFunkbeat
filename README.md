@@ -5,9 +5,11 @@
 ${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦𝐞 ? 𝐲𝐞𝐬 𝐦𝐲 𝐝𝐨𝐜𝐭𝐨𝐫 !„}}}}$
 
 
-[𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞!](https://doctorfunkbeatdaitensai.straw.page/)
+<a href="https://doctorfunkbeatdaitensai.straw.page/"><img width="90" height="90" alt="Untitled256_20260828102636" src="https://github.com/user-attachments/assets/7504bf26-02d1-45ff-8abd-b3cc01ae29a0" />
 ✧
-[𝐀𝐭𝐚𝐛𝐨𝐨𝐤!](https://meikahime.atabook.org)
+<a href="https://meikahime.atabook.org/"><img width="90" height="90" alt="Untitled256_20260828102602" src="https://github.com/user-attachments/assets/7fa664ce-265b-4fae-82e6-de929b9fda9c" />
+
+
 ✧
 [𝐄𝐧 𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬!](https://en.pronouns.page/@DoctorFunkbeat_)
 ✧
