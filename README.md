@@ -9,7 +9,7 @@ ${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦
 ✧
 <a href="https://meikahime.atabook.org/"><img width="70" height="70" alt="Untitled256_20260828102602" src="https://github.com/user-attachments/assets/7fa664ce-265b-4fae-82e6-de929b9fda9c" />
 ✧
-<a href="https://en.pronouns.page/@DoctorFunkbeat_/"><img width="70" height="70" alt="Untitled256_20260828102645" src="https://github.com/user-attachments/assets/20620d86-6c8a-4b96-b360-b56c74874b86" />
+<a href="https://en.pronouns.page/@DoctorFunkbeatt/"><img width="70" height="70" alt="Untitled256_20260828102645" src="https://github.com/user-attachments/assets/20620d86-6c8a-4b96-b360-b56c74874b86" />
 ✧
 <a href="https://ibispaint.com/artist3/1989259252181890824/?type=illust&sort=new/"><img width="70" height="70" alt="Untitled256_20260828102719" src="https://github.com/user-attachments/assets/712edd8a-d985-477f-9c21-5faf2f390e23" />
 ✧
