@@ -23,6 +23,12 @@ ${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦
 
 [𝑃𝑜𝑛𝑦𝑡𝑜𝑤𝑛'𝑠 𝐷𝑜𝑐𝑡𝑜𝑟 𝐹𝑢𝑛𝑘𝑏𝑒𝑎𝑡.](https://github.com/pt-hall-of-media) 
 
+> ${{\color{#35857D}\normalsize{\textsf{𝐬𝐩𝐞𝐜𝐢𝐚𝐥 𝐦𝐞𝐧𝐭𝐢𝐨𝐧𝐬<𝟑}}}}$
+> [𝓘zzy](https://github.com/sinfulribbons)
+>[𝓜ax](https://github.com/WingedMax)
+> [𝓞liver](https://github.com/oliveraliencreature-a11y)
+> [𝓚im](https://github.com/Jiraiki)
+
 <img width="60" height="60" alt="Untitled274_20260808085156" src="https://github.com/user-attachments/assets/f514ff9f-41e3-473a-959e-03baf4719027" />
 <img width="70" height="70" alt="IMG_8532" src="https://github.com/user-attachments/assets/df0261c2-1f59-47f5-abe4-45c65e5bf93d" /> 20.07 <3
 
