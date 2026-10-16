@@ -28,12 +28,15 @@ ${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦
     <p>
 𝓘zzy (𝐠𝐟 <3)
         
-𝓜ax (𝐛𝐫𝐨𝐭𝐡𝐞𝐫!)
+𝓣heo / 𝓝oel (𝐛𝐫𝐨𝐭𝐡𝐞𝐫!)
     
 𝓞liver 
     
 𝓚im 
-    </p>
+
+𝓡inny
+
+   </p>
 </details>
 
 <img width="60" height="60" alt="Untitled274_20260808085156" src="https://github.com/user-attachments/assets/f514ff9f-41e3-473a-959e-03baf4719027" />
