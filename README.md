@@ -39,6 +39,24 @@ ${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦
    </p>
 </details>
 
+<details>
+    <summary>${{\color{#35857D}\normalsize{\textsf{𝐐𝐮𝐢𝐜𝐤 𝐁𝐅𝐘𝐈 ໒꒱ ‧₊˚}}}}$</summary>
+    <p>
+        
+𝐢 𝐬𝐭𝐫𝐮𝐠𝐠𝐥𝐞 𝐭𝐨 𝐬𝐨𝐜𝐢𝐚𝐥𝐢𝐳𝐞 𝐝𝐮𝐞 𝐭𝐨 𝐚 𝐨𝐥𝐝 𝐟𝐫𝐢𝐞𝐧𝐝𝐬𝐡𝐢𝐩 𝐛𝐫𝐞𝐚𝐤𝐮𝐩. 𝐈 𝐦𝐚𝐲 𝐬𝐞𝐞𝐦 𝐫𝐮𝐝𝐞 𝐨𝐫 𝐝𝐢𝐬𝐭𝐚𝐧𝐭 𝐚𝐭 𝐟𝐢𝐫𝐬𝐭 𝐛𝐮𝐭 𝐢'𝐥𝐥 𝐞𝐯𝐞𝐧𝐭𝐮𝐚𝐥𝐥𝐲 𝐰𝐚𝐫𝐦 𝐮𝐩 𝐢 𝐩𝐫𝐨𝐦𝐢𝐬𝐞!!
+
+𝐢 𝐚𝐦 𝐦𝐞𝐧𝐭𝐚𝐥𝐥𝐲 𝐢𝐥𝐥 𝐚𝐧𝐝 𝐮𝐬𝐮𝐚𝐥𝐥𝐲 𝐧𝐨𝐭 𝐦𝐞𝐝𝐢𝐜𝐚𝐭𝐞𝐝 𝐬𝐨 𝐢𝐰𝐞𝐜 + 𝐢𝐚𝐲𝐨𝐫 𝐚𝐥𝐥 𝐭𝐢𝐦𝐞𝐬
+
+𝐈𝐟 𝐢𝐦 𝐥𝐢𝐬𝐭𝐞𝐧𝐢𝐧𝐠 𝐭𝐨 "𝐚𝐚𝐚𝐚𝐚𝐚𝐚𝐚𝐚𝐚𝐚𝐚" 𝐛𝐲 𝐧𝐲𝐚𝐧𝐲𝐚𝐧𝐧𝐲𝐚 𝐭𝐡𝐞𝐧 𝐝𝐧𝐢𝐮𝐢𝐝. 𝐈𝐭 𝐦𝐞𝐚𝐧𝐬 𝐢'𝐦 𝐧𝐨𝐭 𝐨𝐤𝐚𝐲 𝐚𝐭 𝐭𝐡𝐞 𝐦𝐨𝐦𝐞𝐧𝐭 𝐚𝐧𝐝 𝐥𝐢𝐤𝐞𝐥𝐲 𝐮𝐩𝐬𝐞𝐭/𝐝𝐫𝐚𝐢𝐧𝐞𝐝
+
+𝐜*𝐡 𝐟𝐫𝐞𝐞𝐥𝐲 𝐮𝐧𝐥𝐞𝐬𝐬 𝐰𝐢𝐭𝐡 𝐬𝐨𝐦𝐞𝐨𝐧𝐞 𝐨𝐫 𝐢 𝐡𝐚𝐯𝐞 𝐝𝐧𝐢
+
+ 𝐌𝐨𝐫𝐞 𝐨𝐧 𝐦𝐲 [𝐢𝐧𝐭𝐫𝐨 𝐫𝐞𝐩𝐨𝐬𝐢𝐭𝐨𝐫𝐲](https://github.com/DoctorFunkbeat/Introduction)
+
+   </p>
+</details>
+
+
 <img width="60" height="60" alt="Untitled274_20260808085156" src="https://github.com/user-attachments/assets/f514ff9f-41e3-473a-959e-03baf4719027" />
 <img width="70" height="70" alt="IMG_8532" src="https://github.com/user-attachments/assets/df0261c2-1f59-47f5-abe4-45c65e5bf93d" /> 20.07 <3
 
