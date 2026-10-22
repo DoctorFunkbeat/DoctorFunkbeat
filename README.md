@@ -34,8 +34,6 @@ ${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦
     
 𝓚im 
 
-𝓡inny
-
    </p>
 </details>
 
