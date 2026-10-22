@@ -76,6 +76,7 @@ ${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦
 
 
 <img width="60" height="60" alt="Untitled274_20260808085156" src="https://github.com/user-attachments/assets/f514ff9f-41e3-473a-959e-03baf4719027" />
+<img width="80" height="60" alt="Untitled523_20261022172218" src="https://github.com/user-attachments/assets/103429d9-74a7-4582-8115-7fd3645c4f07" />
 <img width="70" height="70" alt="IMG_8532" src="https://github.com/user-attachments/assets/df0261c2-1f59-47f5-abe4-45c65e5bf93d" /> 20.07 <3
 
 
