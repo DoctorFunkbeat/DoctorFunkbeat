@@ -26,7 +26,7 @@ ${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦
 <details>
     <summary>${{\color{#35857D}\normalsize{\textsf{𝐁𝐞𝐬𝐭 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 / 𝐟𝐚𝐦𝐢𝐥𝐲 ໒꒱ ‧₊˚}}}}$</summary>
     <p>
-[𝓘zzy](https://github.com/sinfulribbons)(𝐠𝐟 <3)
+𝓘zzy(𝐠𝐟 <3)
         
 𝓣heo / 𝓝oel (𝐛𝐫𝐨𝐭𝐡𝐞𝐫!)
     
