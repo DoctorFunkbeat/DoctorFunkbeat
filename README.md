@@ -34,6 +34,8 @@ ${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦
     
 𝓚im 
 
+𝓚ris / 𝓕alcon
+
    </p>
 </details>
 
