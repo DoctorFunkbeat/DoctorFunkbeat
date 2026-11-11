@@ -2,7 +2,7 @@
 
 <img width="1920" height="1088" alt="IMG_9188" src="https://github.com/user-attachments/assets/13dd4e86-7301-4324-8313-8a4eeb5a4992" />
 
-${{\color{#35857D}\normalsize{\textsf{“𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦𝐞 ? 𝐲𝐞𝐬 𝐦𝐲 𝐝𝐨𝐜𝐭𝐨𝐫 !„}}}}$
+${{\color{#35857D}\normalsize{\textsf{⊹ ࣪ ˖𐂯 “𝐀 𝐜𝐚𝐥𝐥 𝐟𝐨𝐫 𝐦𝐞 ? 𝐲𝐞𝐬 𝐦𝐲 𝐝𝐨𝐜𝐭𝐨𝐫 !„}}}}$
 
 
 <a href="https://doctorfunkbeatdaitensai.straw.page/"><img width="70" height="70" alt="Untitled256_20260828102636" src="https://github.com/user-attachments/assets/7504bf26-02d1-45ff-8abd-b3cc01ae29a0" />
