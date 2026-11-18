@@ -28,13 +28,15 @@ ${{\color{#35857D}\normalsize{\textsf{⊹ ࣪ ˖𐂯 “𝐀 𝐜𝐚𝐥𝐥 �
     <p>
 𝓘zzy(𝐠𝐟 <3)
         
-𝓣heo / 𝓝oel (𝐛𝐫𝐨𝐭𝐡𝐞𝐫!)
-    
-𝓞liver 
-    
-𝓚im 
+𝓛ou (𝐛𝐫𝐨𝐭𝐡𝐞𝐫!)
 
-𝓚ris / 𝓕alcon
+𝓩ip (𝐬𝐢𝐬𝐭𝐞𝐫!)
+    
+𝓚im
+
+𝓒heddar
+
+𝓚ris 
 
    </p>
 </details>
