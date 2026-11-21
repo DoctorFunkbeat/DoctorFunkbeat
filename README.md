@@ -36,6 +36,10 @@ ${{\color{#35857D}\normalsize{\textsf{⊹ ࣪ ˖𐂯 “𝐀 𝐜𝐚𝐥𝐥 �
 
 𝓨uki (𝐦𝐨𝐦!)
 
+𝓚okoro (𝐝𝐚𝐝/𝐦𝐨𝐦!)
+
+𝓓ino (𝐦𝐨𝐦!)
+
 𝓒heddar
 
 𝓚ris 
