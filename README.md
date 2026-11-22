@@ -24,8 +24,7 @@ ${{\color{#35857D}\normalsize{\textsf{⊹ ࣪ ˖𐂯 “𝐀 𝐜𝐚𝐥𝐥 �
 [𝑃𝑜𝑛𝑦𝑡𝑜𝑤𝑛'𝑠 𝐷𝑜𝑐𝑡𝑜𝑟 𝐹𝑢𝑛𝑘𝑏𝑒𝑎𝑡.](https://github.com/pt-hall-of-media) 
 
 
-${{\color{#35857D}\normalsize{\textsf{𝐅𝐮𝐧𝐤𝐛𝐞𝐚𝐭 ٫ 𝐋𝐞𝐚𝐝𝐢𝐚 𝐨𝐫 𝐌𝐢𝐤ø𝐭ø ..}}}}$ 
-${{\color{#35857D}\normalsize{𝐡𝐞/𝐭𝐡𝐞𝐲/𝐢𝐭/𝐬𝐭𝐚𝐫/𝐩𝐚𝐰 ..}}}}$
+${{\color{#35857D}\normalsize{\textsf{𝐅𝐮𝐧𝐤𝐛𝐞𝐚𝐭 ٫ 𝐋𝐞𝐚𝐝𝐢𝐚 𝐨𝐫 𝐌𝐢𝐤ø𝐭ø ..}}}}$ ✦ ${{\color{#35857D}\normalsize{\textsf{𝐡𝐞/𝐭𝐡𝐞𝐲/𝐢𝐭/𝐬𝐭𝐚𝐫/𝐩𝐚𝐰 ..}}}}$
 
 
 
